@@ -1,2 +1,1 @@
-# SY24-25
-#Griffin
+Sign out next time - love 7th period
